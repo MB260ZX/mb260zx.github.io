@@ -1,1 +1,1 @@
-# MB260ZX.github.io
+# mb260zx.github.io
